@@ -1,0 +1,1 @@
+# kusuma-b-stepangulartraining
